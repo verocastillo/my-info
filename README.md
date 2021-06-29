@@ -9,4 +9,5 @@ I am excited to hear about potential career opportunities, so I would be pleased
 
 ## Learn More:
 **Linkedin:** https://www.linkedin.com/in/verocst/
+
 **Online Resume:** https://verocastillo.github.io/my-info/index.html
